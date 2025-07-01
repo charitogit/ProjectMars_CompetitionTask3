@@ -1,1 +1,0 @@
-# ProjectMars_CompetitionTask3
